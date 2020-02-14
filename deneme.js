@@ -1,0 +1,1 @@
+<a class='dmca-badge' href='//www.dmca.com/Protection/Status.aspx?ID=8a32eb14-23b7-4f61-a861-878ea56dea7d' title='DMCA.com Protection Status'> <img alt='DMCA.com Protection Status' src='https://images.dmca.com/Badges/dmca-badge-w100-5x1-05.png?ID=8a32eb14-23b7-4f61-a861-878ea56dea7d'/></a>  <script src='https://images.dmca.com/Badges/DMCABadgeHelper.min.js'> <
